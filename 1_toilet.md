@@ -51,6 +51,6 @@ Bạn có thể làm gì với _ghi hình buồng xí_
 
 Đơn giản thôi. Tác động tới luật để chặn sự bành trướng của bộ máy giám sát, thứ mà rốt cuộc sẽ mở toang được cánh cửa phòng vệ sinh của bạn.
 
-[Source](https://goo.gl/QY3mrb)
+[Quora Source](https://goo.gl/QY3mrb)
 
-[Bài dịch trên Facebook](https://www.facebook.com/groups/vietnamquora/permalink/2075468086019650/)
+[Facebook link](https://www.facebook.com/photo.php?fbid=151971485620635&set=gm.2075468086019650&type=3&permPage=1&ifg=1)
