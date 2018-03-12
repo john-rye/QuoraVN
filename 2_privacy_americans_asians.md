@@ -53,3 +53,4 @@ Câu trả lời này mang tính khái quát rộng, như tính chất của câ
 
 [Quora Source](https://www.quora.com/Why-are-Americans-so-concerned-about-their-privacy-compared-to-Asians)
 
+[Facebook Link](https://www.facebook.com/photo.php?fbid=152815078869609&set=gm.2076131012620024&type=3&permPage=1)
