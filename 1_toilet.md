@@ -2,6 +2,9 @@
 
 #privacy #freedom #restroom #toilet
 
+![Bob Anderson](https://qph.ec.quoracdn.net/main-thumb-204135926-50-ncqrtezbyitvlylymbbicfhpwwogvfbi.jpeg "Bob Anderson") 
+__Bob Anderson, studied at New York University (1977)__
+
 __Q: Khi nào thì sẽ không còn sự riêng tư trong nhà vệ sinh?__
 
 A: Bob Anderson, Founder and CEO Merlin.World
